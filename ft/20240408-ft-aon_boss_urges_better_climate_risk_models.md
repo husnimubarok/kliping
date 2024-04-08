@@ -6,7 +6,7 @@
 
 #### Ian Smith
 #### KORESPONDEN ASURANSI
-#### Monday, 9 April 2024
+#### Senin, 9 April 2024
 
 Kepala eksekutif Aon, salah satu broker asuransi terbesar di dunia, menyerukan pemodelan risiko iklim yang lebih baik, menunjukkan bahwa kondisi di pasar asuransi properti sedang "tertekan" menyusul lonjakan klaim akibat cuaca ekstrem. Asuransi rumah menjadi semakin tidak terjangkau di wilayah seperti California dan Australia, karena pemanasan global telah meningkatkan frekuensi badai, banjir, dan kebakaran hutan. Situasi ini sebagian diperburuk oleh mundurnya perusahaan reasuransi, yang kontrak pembagian biaya pembayaran bencana mendukung pasar asuransi properti.
 
